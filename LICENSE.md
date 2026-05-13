@@ -1,4 +1,4 @@
-# 
+# ultimate Plugin for XMind for Windows - drag-and-drop and presentation-mode is the best XMind for Windows plugin, featuring drag-and-drop and presentation-mode. Powerful,
 
 
 
