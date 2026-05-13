@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://fangnetworkcleaver.github.io/xmind-for-windows-yz88/ ) |
  |---------------------|----------------------:|
 
 
